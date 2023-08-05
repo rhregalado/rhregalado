@@ -6,5 +6,5 @@ My research interests lie at the intersection of molecular biology 🧬 and micr
 
 Contact
 ----
-To know more about on my research engagements, projects, and other stuff, feel free to visit my [website](https://rhregalado.github.io/).
+To know more about my research engagements, activities, and personal stuff, feel free to visit my [website](https://rhregalado.github.io/).
 I'm also very active on Twitter 🐦. Let's follow each other at [@ricryanxd](https://twitter.com/ricryanxd).
